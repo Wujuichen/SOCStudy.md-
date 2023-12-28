@@ -1,1 +1,1 @@
-# SOCStudy.md-
+# SOCStudy.md- 大家好，我是目前就讀於清大電機碩一的吳睿宸
